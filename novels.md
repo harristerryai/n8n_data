@@ -10,3 +10,16 @@
 8. **The Hobbit** by J.R.R. Tolkien (1937)
 9. **The Chronicles of Narnia** by C.S. Lewis (1950-1956)
 10. **The Left Hand of Darkness** by Ursula K. Le Guin (1969)
+
+### Additional Authors
+
+11. **H.P. Lovecraft**
+12. **Philip K. Dick**
+13. **Ray Bradbury**
+14. **Anne Rice**
+15. **Isaac Asimov**
+16. **Stephen King**
+17. **Neil Gaiman**
+18. **Arthur C. Clarke**
+19. **Clive Barker**
+20. **Octavia Butler**
