@@ -1,0 +1,554 @@
+# 100 Facts of Mazariim
+## Daily Loading Screen Lore
+
+---
+
+**March 17, 2026**
+The universe of Mazariim was not created by any god or divine being. It was born from the collision and merging of two previous, now-destroyed universes—primordial reality streams from predecessor dimensions that exploded outward, eventually forming stars, planets, and life over billions of years. The entities that mortals call "gods" arrived much later, and they hold no complete dominion over the world.
+
+---
+
+**March 18, 2026**
+Mau the Oracle is the oldest sentient being in the entire universe, having awakened approximately two billion years ago from accumulated magical energy. Mau created the Astral Plane and the Astral Sea, establishing the infrastructure through which souls transfer between bodies and planes upon death. Mau existed in complete solitude for roughly 1.5 billion years before mortal life even emerged.
+
+---
+
+**March 19, 2026**
+The concept of a "soul" in Mazariim has a scientific explanation. When Mau first observed the universe, its gaze interacted with the magical force in a way similar to quantum observation—collapsing probability into reality. This bonded magical energy to the minds of self-aware creatures, creating a copy of their consciousness stored in a magical matrix. Upon death, this energy drifts toward the extra-dimensional planes and their entities.
+
+---
+
+**March 20, 2026**
+The entities that most people call "gods" are not immortal—they are timeless. They do not age or require food, water, or sleep, but anything that could dissipate or destroy their magical energy could theoretically kill them. Entities that fight each other can destroy a rival permanently, as happened to Quarzel during the War to End All Wars.
+
+---
+
+**March 21, 2026**
+The planet Mazariim orbits a stable yellow star alongside three other planets: Dicia, a rocky world close to the sun; Orpheous, a ringed gas giant; and Intiago, a massive outer gas giant. It was on Intiago's moon Lystra that an advanced alien civilization called the Drakaii once thrived before their world faced destruction, sending survivors scattering across dimensions—some of whom became the progenitors of dragons.
+
+---
+
+**March 22, 2026**
+Elves, Humans, Dwarves, Halflings, and Gnomes all share a common ancestor species that began splitting into distinct lineages around 500,000 years ago. By approximately 100,000 BW, these five major races had become genetically distinct species, no longer capable of interbreeding. Each went on to develop unique cultures and survival strategies across different parts of the world.
+
+---
+
+**March 23, 2026**
+Alagalothor is the patron entity of arcane magic and spellcasting. Originally from a dying universe called Talernon, Alagalothor arrived on Mazariim in 1,492 BW alongside two companions, Thalaman and Sheeva. Alagalothor settled in the Far Realm and became the patron of wizards and sorcerers across all cultures, with followers specializing in every school of magic from abjuration to transmutation.
+
+---
+
+**March 24, 2026**
+The oldest continuous city in all of Mazariim is Elwendor, the High Elf capital on the continent of Vand'ardhon, founded approximately 14,200 years before the War. By the time humans were still using stone tools and living in family-based clans, the elves had already built a thriving metropolis and begun developing language, mathematics, and art.
+
+---
+
+**March 25, 2026**
+Minerva, the elven patron entity, formed near a moon orbiting a planet in a nearby star system. When Minerva flared into existence, the entity was so powerful that it immediately created a new plane of existence, pulling the nearby moon with it into what became known as Elysium. From there, Minerva looked out into the cosmos, saw the elves of Mazariim, and chose to guide them.
+
+---
+
+**March 26, 2026**
+In 3,402 BW, Minerva made direct contact with elven leaders across Vand'ardhon in an event called The Enlightening. Minerva imparted vast knowledge and lifetimes of wisdom, elevating elven civilization from scattered tribal cultures to a spiritually unified people. Two core ideals were woven into elven culture that persist to this day: deep reverence for nature and the land, and an absence of the need for personal possessions or land ownership.
+
+---
+
+**March 27, 2026**
+The universe of Mazariim has three fundamental forces: gravity, electromagnetism, and the magical force. The magical force is so dominant that it overpowers the others, preventing the existence of many technologies that rely on electricity or nanotechnology. This is why even the most advanced civilizations in Mazariim rely on magic rather than technology as we know it.
+
+---
+
+**March 28, 2026**
+Dragons are not native to Mazariim. Approximately two million years ago, an advanced civilization called the Drakaii faced the destruction of their homeworld, Lystra—a moon of the gas giant Intiago. Survivors scattered across dimensions and universes, and a small group that arrived on Mazariim became the progenitors of all dragons. The Drakaii themselves were multi-armed reptilian beings quite different from the dragons they eventually became.
+
+---
+
+**March 29, 2026**
+The ancient continent of Akovar was home to one of the most advanced civilizations in history. Beginning around 13,000 BW with the guidance of Asti, the Akovarians constructed pyramid temples at ley-line convergence points and mastered healing magic to the point where disease became rare and undead were virtually unknown. Their civilization flourished for over six thousand years before being destroyed in the Dragon War.
+
+---
+
+**March 30, 2026**
+The ley-line network was originally created by Asti around 20,000 BW and first energized by Akovarian pyramids around 8,200 BW. When the Dragon War destroyed Akovar in 6,830 BW, the ley-lines were destroyed along with it. They remained dormant for 7,645 years—the longest magical blackout in history—until adventurers freed Asti from imprisonment in 815 AW.
+
+---
+
+**March 31, 2026**
+The Dragon War of 6,830 BW was caused by jealousy. Chromatic dragons, envious of metallic dragons' favored status with Asti, launched a coordinated campaign to destroy the pyramid temples and corrupt the ley-lines of Akovar. In the final battle, Akovarian priests transferred Asti's consciousness into an artifact called the Mask of the Pharaoh while teleporting their entire population to the Ancient South. The resulting ley-line explosion killed most of the attacking dragons and destroyed every Akovarian city.
+
+---
+
+**April 1, 2026**
+The survivors of Akovar who were teleported to the Ancient South suffered severe memory loss from the traumatic magical displacement. Their high priest, Thz'zar Ja'laao, went mad. Despite this, the survivors eventually founded the Varkonan culture and established Nepherites around 6,500 BW, building pyramids that continued Akovarian architectural traditions—even though they no longer fully understood the original purpose of such structures.
+
+---
+
+**April 2, 2026**
+Mordrion, the Dwarf Father, was not born in Mazariim's universe. He was originally Moradin, the god of dwarves on a world called Oerth. During a titanic battle with Gruumsh the orc god, both deities suffered grievous wounds—Gruumsh's spear ripped out Moradin's eye, and Moradin's axe severed Gruumsh's hand. The surge of magical energy tore both gods from their universe and deposited them in Mazariim's reality, where they awoke diminished, mortal, and forever changed.
+
+---
+
+**April 3, 2026**
+Zuel the Devourer was once Gruumsh, the god of orcs on the world of Oerth. After being ripped into Mazariim's universe alongside his eternal enemy Moradin, both entities discovered they were no longer immortal and far less powerful than before. While Mordrion chose to help the dwarves, Zuel sought out the primitive orcs, goblins, and ogres of Mazariim to manipulate and build into an army that would one day threaten the entire world.
+
+---
+
+**April 4, 2026**
+The Dwarven Wars were a brutal civil conflict lasting over 70 years, from 1,921 to 1,849 BW. Northern Gormdawi clans sought unification while southern Bryndawi clans resisted, and the fighting over territory, mining rights, food, and water drastically reduced the dwarven population. The wars only ended when Mordrion arrived and brokered peace between the warring factions, earning him the eternal devotion of dwarven civilization.
+
+---
+
+**April 5, 2026**
+Tiovin and Taovan were originally a single entity that observed humanity and split into two opposing halves around 3,000 BW. Tiovin embodies mercy, compassion, and justice, and created Heaven and the Ethereal Plane. Taovan represents cruelty, domination, and corruption, and created Hell and the Shadow Plane. They established The Pact—an agreement governing their eternal competition for mortal souls.
+
+---
+
+**April 6, 2026**
+The Feywild was not intentionally created. Around 20,000 BW, the wild nature entity Gruhathyrir's consciousness warped reality around it, spontaneously generating a parallel plane where nature operates by dream-logic. The first fey creatures—sprites, dryads, satyrs, and powerful archfey lords like Titania and Oberon—emerged from this strange, beautiful, and dangerous place.
+
+---
+
+**April 7, 2026**
+Gyru Ironspanner is the only mortal in the history of Mazariim to successfully ascend to godhood. A dwarf inventor, Gyru built an "Apotheosis Engine" designed to absorb vast amounts of magical energy and transfer it into himself. Though Alagalothor shattered the device, the energy released transformed Gyru into a lesser entity. He was transported to Utopia, where he built a clockwork laboratory served by mathematical beings called axiomites.
+
+---
+
+**April 8, 2026**
+Paladine the Platinum Dragon arrived on Mazariim from a world called Krynn in 1,414 BW. On Krynn, a deity had died and a cosmic balance needed to be maintained—forcing Paladine to leave rather than unbalance their cosmos. Upon arriving in Mazariim, Paladine anointed the first paladin—a holy warrior empowered by sacred oaths who fights with both sword and spell. The Grand Cathedral of Justice was built in Paladine's honor.
+
+---
+
+**April 9, 2026**
+Eilistraee arrived on Mazariim from the world of Faerun during the Spellplague in 1,377 BW. An elven goddess who had created a blade to kill another deity, the weapon was instead used on her. Rather than dying, a fragment of her power—along with several hundred drow refugees—was transported to Mazariim. Minerva welcomed her to Elysium, and the first surface drow population demonstrated that dark elves could reject evil.
+
+---
+
+**April 10, 2026**
+The Yrugas mageocracy was one of the most brutal civilizations in human history, lasting roughly 1,300 years from 4,000 to 2,700 BW. It began when dragons taught humans in the Inner Kingdoms how to wield arcane magic. A wizard named Madron—whose name lives on in the Madronian people and language—ruled for some 900 years. Many of the monstrosities that roam the darkest corners of the world today were experiments created during Yrugas's reign.
+
+---
+
+**April 11, 2026**
+When Yrugas collapsed around 2,700 BW, the mass death from magical catastrophe and slave revolts was so enormous that it created the Hollow Sepulcher—Zebulba's greatest temple. Undead armies poured from the ruins for centuries until a coalition managed to seal the breach. A group known as the Void-Touched has maintained protective wards from inside the Sepulcher perpetually ever since.
+
+---
+
+**April 12, 2026**
+The Dukhan Empire was a theocracy devoted to Zebulba, the entity of death and entropy. For roughly 800 years, its priests used human sacrifice at ziggurats on equinoxes and solstices, employing dark magic to extend their own lifespans—gaining incredible age and wisdom, and eventually madness. The empire fell when its leader Soros un-Kahn miscalculated a ritual to summon Zebulba's avatar, instead unleashing negative energies that killed all living things near every ziggurat in the empire.
+
+---
+
+**April 13, 2026**
+Zebulba is one of the most terrifying entities in existence. It formed within and absorbed a black hole, drawing power from the Negative Energy Plane. Unlike other entities that seek worship or devotion, Zebulba is described as mindless, yet it still draws a small but maniacal following of zealots dedicated to death and destruction. Its death cults have been operating in the shadows since prehistoric times, around 20,000 BW.
+
+---
+
+**April 14, 2026**
+Humans on Nigal actually have two completely separate origins. Native Nigal humans emerged naturally in the temperate northwest, eventually becoming the Madronians. A second population—Varkonan humans—are descended from Akovarian refugees who were magically teleported to the Ancient South during the Dragon War of 6,830 BW. These two populations developed independently for thousands of years before reconnecting through trade.
+
+---
+
+**April 15, 2026**
+The War to End All Wars lasted only four years, from 4 BW to 1 BW, but it was the closest civilization ever came to total annihilation. Zuel had spent decades secretly hoarding magical power and building an army of orcs, goblins, and ogres over a million strong. When the horde erupted from mountains simultaneously across multiple fronts, dwarven holds fell within months and a dozen coastal cities were wiped from the map.
+
+---
+
+**April 16, 2026**
+During the War to End All Wars, strange frog-like daemons emerged from the oceans and attacked coastal settlements, led by an immense sea creature with dozens of hundred-foot-long tentacles. Ocean-bound trade and commerce came to a complete halt. This aquatic assault forced even the mighty elven navy into devastating engagements that would ultimately cost them 75% of their fleet.
+
+---
+
+**April 17, 2026**
+In the War's darkest hour, Minerva made an extraordinary sacrifice. Rather than manifesting an avatar that could be destroyed—which would have banished Minerva for 101 years—the entity divided its very essence among the Seven Artharans, the seven leaders of the elven nations. This granted them phenomenal power and created a psychic command network. When an Artharan dies, Minerva's fragment automatically transfers to their successor, ensuring continuity to the present day.
+
+---
+
+**April 18, 2026**
+The elves paid a catastrophic price in the War to End All Wars. Of the 30,000 warriors deployed to Nigal, 12,000 died—a staggering 40% casualty rate. It was the bloodiest elven conflict since the Enlightening. The 18,000 survivors were stranded after a daemon ambush destroyed 75% of the elven navy, and it took a full decade to evacuate them. Approximately 500 to 800 elves chose to remain on Nigal, forming the first permanent elven diaspora.
+
+---
+
+**April 19, 2026**
+The War ended when a dwarven hero named Demious Stoneshaper, wielding Mordrion's blessed warhammer, defeated the avatar of Zuel in single combat at the Battle of Fort Hope. Before falling, Zuel had personally destroyed the avatars of Mordrion, Quarzel, and several lesser entities. Quarzel, the entity of organized warfare, was obliterated permanently—the only entity to be truly killed in the conflict.
+
+---
+
+**April 20, 2026**
+The aftermath of the War to End All Wars reshaped civilization. A uniform calendar system was adopted, with Year 1 AW marking the war's end. The Trade language was expanded into the Common tongue used across all cultures. For the first time in history, the races agreed to work together, and the unity forged at Fort Hope evolved into the Federation of Man—a permanent confederation ensuring the human lands would never again be divided against themselves.
+
+---
+
+**April 21, 2026**
+The multiverse is structured in eleven dimensions, with an infinite number of universes spread throughout. Mazariim's universe sits in the 11th-dimensional center of a region with many other universes in close proximity—which is why this particular universe has had so many visitors from other realities, including entities like Mordrion, Zuel, Paladine, Eilistraee, and the trio from Talernon.
+
+---
+
+**April 22, 2026**
+There is a peculiar rule governing travel between universes: the boundaries have an inverse relationship with the amount of magical force a traveler possesses. This means it is actually harder for a greater deity to enter Mazariim than a lesser deity or powerful adventurer. This is why powerful entities cannot fully enter the prime material plane and must send avatars instead—partial manifestations of their true power.
+
+---
+
+**April 23, 2026**
+When an entity's avatar is destroyed on the prime material plane, the entity is not killed—but it is significantly weakened and must wait exactly 101 years before it can gather enough energy to pierce the barrier between worlds and send another avatar. After the War to End All Wars, most major entities had their avatars banished, leaving Mazariim without direct divine intervention for over a century.
+
+---
+
+**April 24, 2026**
+Hinterhin, the patron entity of halflings, awakened in 2,971 BW and became the cultural anchor for Shalazar, the halfling island homeland. Hinterhin's essence is tied to harvest and home, binding halfling community practice to agricultural stability. During the War to End All Wars, Hinterhin's blessed harvests fed millions of refugees, and Shalazar's ability to sustain life became strategically vital for the entire alliance.
+
+---
+
+**April 25, 2026**
+The Empire of Simir was a corrupt republic that lasted roughly 400 years in the Merchant Nations. Its founder, Petrov Simir, used economic manipulation rather than military conquest to assimilate neighboring cities. He lived to the age of 150, with persistent rumors of dark pacts with evil entities keeping him alive. The empire finally fell in 686 AW when King Tiberius Simir was assassinated in his own palace, triggering a succession crisis that tore the realm apart within a decade.
+
+---
+
+**April 26, 2026**
+The Sabonaar people of the Merchant Nations trace their origins to Madronian settlers who migrated south along the western coast of Nigal around 3,500 BW. Over centuries, they developed their own maritime traditions, mercantile focus, and the practical Sabo language. Their unified nation of Sabonaa, founded in 1,328 BW, became the namesake for an entire people and spawned a succession of empires and city-states that would dominate the Sabon Peninsula for over two thousand years.
+
+---
+
+**April 27, 2026**
+The Chak'ti people of the Horselands were once Madronians who migrated east to the central plains around 2,500 BW, drawn by a cultural and spiritual calling to follow great horse herds. They deliberately abandoned settled agricultural life for nomadic existence, developing horse-based culture and ancestor worship. Their sacred site at Khonayn dates to that earliest migration, but it took over two thousand years before they formalized Sharma-Ad as their mobile capital around 400 BW.
+
+---
+
+**April 28, 2026**
+The Nond people of the Frozen Isles descended from hardy Madronians who began exploring northward around 2,000 BW, drawn by adventure, resources, and the challenge of surviving in harsh conditions. They founded Javalh around 1,800 BW as the first permanent settlement, developing a Vikingesque seafaring culture of raiding and trading. Their most recent settlement, simply called Nond, was established as recently as 350 AW in the far frozen north.
+
+---
+
+**April 29, 2026**
+The Ejiin people of the Lands of Honor are actually descended from Varkonan settlers who migrated east from the Ancient South around 3,500 BW. They abandoned their ancestors' pharaonic traditions and developed an entirely new elemental religion worshiping water, earth, air, and fire. Their shogunate system replaced the Varkonan concept of god-kings, and over millennia they lost all direct connection to their Akovarian and ley-line heritage.
+
+---
+
+**April 30, 2026**
+The pyramid-building tradition of Mazariim represents an unbroken cultural continuity spanning over 11,000 years. It began with the Akovarians on the lost continent of Akovar around 13,000 BW, was carried to the Ancient South by Varkonan refugees in 6,830 BW where they built the pyramids of Nepherites, and was brought to the tropical jungles of the Mespoian Peninsula by migrants who founded Azala around 1,900 BW, adapting the tradition to rainforest temple-pyramids.
+
+---
+
+**May 1, 2026**
+Ry'le is one of the most patient and terrifying entities in existence. Resembling a large cephalopod, this Far Realm entity awakened around 2,800 BW but watched Mazariim for approximately 3,600 years before making its first contact in 820 AW. Unlike entities that seek worship, Ry'le seeks to replace mortal civilizations entirely with its own shapeshifting creations called the Ry'lehe.
+
+---
+
+**May 2, 2026**
+The Far Realm is one of the most alien planes in existence, home to all aberrations. It was created by Xorancon, an entity that awakened around 17,000 BW in the spaces between realities. Xorancon manifests as a titanic beholder-like entity of impossible geometry. The Far Realm is also home to Alagalothor, the patron of arcane magic, and Ry'le, the infiltrating cephalopod entity—making it a plane of terrible knowledge and existential horror.
+
+---
+
+**May 3, 2026**
+Ashura and Khan are twin entities born from the Ejiin warrior culture. Around 2,900 BW, as samurai began swearing oaths of honor, Ashura awakened as the embodiment of honor, courage, and self-sacrifice, carving a realm called Tengoku from a part of Heaven. When the first samurai broke an oath, Khan stirred as Ashura's dark reflection, claiming territory within Hell. The two battle eternally during every lunar eclipse—a cosmic duality reflected in Ejiin philosophy.
+
+---
+
+**May 4, 2026**
+The Concord of Unity was the most important diplomatic achievement in the history of Mazariim. Formed at Fort Hope during the War to End All Wars, it united Dwarves, Gnomes, Humans, Elves, and Halflings into a single alliance for the first time. Skeptics of all races had said such an allegiance would never happen, but the existential threat of Zuel's million-strong horde proved that survival demanded cooperation across every ancient boundary.
+
+---
+
+**May 5, 2026**
+Genies in Mazariim are not the wish-granting servants of folklore. They are malevolent elemental spirits seeking revenge for past servitude, classified as Outsiders—beings native to the extra-dimensional planes. The city of Uadjit in the Ancient South is notable for having established contact with geniekind and developing genie magic, creating a culture of "decadent geniemasters" that has persisted for nearly 6,000 years.
+
+---
+
+**May 6, 2026**
+The continent of Vand'ardhon has been the ancestral homeland of the elves for over 14,000 years. For most of that time, the elves maintained strict isolationism, not allowing a single human or dwarf to walk their lands. It was only the catastrophe of the War to End All Wars that finally ended this ancient isolation, as the elves were forced to deploy 30,000 warriors to Nigal and the trauma of shared sacrifice permanently integrated them into the global community.
+
+---
+
+**May 7, 2026**
+Outsiders are extra-dimensional beings formed when the magical energies that mortals think of as souls depart for higher-dimensional destinations. These energies—really magical imprints of biological minds whose quantum state collapses when observed by Mau—are often used by entities or planes themselves to create servants. These outsiders follow hierarchies, from the lowliest imp to the mightiest pit fiend, and do not need to sleep, eat, drink, or breathe.
+
+---
+
+**May 8, 2026**
+The Lavantine Peninsula, known as the Lands of Chaos, earned its name honestly. It is the great mixing zone of human civilizations—a convergence point where native Laveri people mixed with Yrugas refugee mages who founded Kruta, Varkonan migrants who became the Ubyra tribes, and waves of War refugees who established Medan and Soractian. The result is one of the most culturally diverse and politically unstable regions on the continent.
+
+---
+
+**May 9, 2026**
+Rivoleen, the gnomish patron entity, awakened around 1,780 BW. Unlike many entities who manifest in dramatic or terrifying ways, Rivoleen first appeared to gnomes as a humble scholar. Within a single generation, Rivoleen became the dominant gnomish deity, perfectly reflecting the gnomish values of curiosity, innovation, and the pursuit of knowledge. Rivoleen resides in Nirvana and is served by creatures called Agathions.
+
+---
+
+**May 10, 2026**
+The seven elven nations that exist today crystallized from geographic and cultural divisions around 3,700 BW: the Yaara'sehan (High Elves), Tawarwaith (Wood Elves), Gaearman (Ocean Elves), Ra'Lad (Plains Elves), Faron'dir (Wandering Elves), Yavaw'dae (Valley Elves), and Aeglirech (Mountain Elves). Each developed distinct traditions and identities while remaining united under the spiritual guidance of Minerva and the leadership of the Seven Artharans.
+
+---
+
+**May 11, 2026**
+Around 4,800 BW, four major elven coastal cities on Vand'ardhon were destroyed by catastrophic flooding, killing between 3,000 and 4,500 elves. Known as the Drowning Cities, this disaster triggered a theological crisis among the elves about the true nature of the Old Gods. It was one of the formative tragedies that shaped elven spiritual philosophy before Minerva's Enlightening centuries later.
+
+---
+
+**May 12, 2026**
+Xannith, the entity of greed, awakened in 699 BW and quickly gained favor among human nobles and merchants. Her clergy, known as the Chains of Gold, consists of corrupt nobles and slave traders. What makes Xannith's worship particularly insidious is that her temples are disguised as banks and auction houses, spreading to every major city in the world. Her eternal rival is Polyvin, the entity of fair trade, who awakened 325 years later.
+
+---
+
+**May 13, 2026**
+Polyvin, the entity of fair trade and shared prosperity, awakened in 374 BW as a direct cosmic counterbalance to Xannith's greed. Polyvin's temples, called Fortune Halls, combine community centers, marketplaces, and gambling halls—offering practical help to common folk while celebrating the idea that fortune should be shared. Polyvin resides in the Towers of Chance and is one of the more approachable entities, attracting merchants, travelers, and halflings alike.
+
+---
+
+**May 14, 2026**
+The Purge of Shadows was a 70-year holy crusade fought entirely on the elven continent of Vand'ardhon between 1,982 and 1,912 BW. When the Hollow Brotherhood, a secretive necromantic cult, was discovered among the elves, it took seven decades of sustained warfare to root out and destroy them. Over 2,000 elves died in the conflict, and in its aftermath, the Pale Watch was founded to ensure such dark magic could never take hold in elven lands again.
+
+---
+
+**May 15, 2026**
+The Federation of Man was established in 1 AW in the immediate aftermath of the War to End All Wars. Built on the foundation of the Concord of Unity forged at Fort Hope, it is governed by the Praetorian Council with representatives from each member state: Beneshire, Saerrus, Arogror, Xeque, and the Grand Confederacy of Pragos. It represents the most enduring political legacy of the War, ensuring that the human lands of the Inner Kingdoms would never again face an existential threat divided.
+
+---
+
+**May 16, 2026**
+Kruta, the slavetrading magocracy in the Lavantine Peninsula, has one of the darkest origin stories of any existing nation. It was founded around 2,650 BW by surviving wizard-lords who fled the collapse of Yrugas—itself one of the most brutal mageocracies in history. These refugee mages mixed with native Laveri peoples but maintained the horrific traditions of their predecessors, including harsh magical hierarchy and slavetrading practices that continue to this day.
+
+---
+
+**May 17, 2026**
+Elven mithril was discovered around 6,000 BW when mountain clans found deposits in the northern peaks of Vand'ardhon. This discovery elevated the mountain elven culture to prominence among the seven elven nations and established one of the most prized materials in all of Mazariim—a metal that is both impossibly light and incredibly strong, coveted by smiths and warriors of every race.
+
+---
+
+**May 18, 2026**
+The Church of Minerva was founded with two distinct religious orders: the Cundo'elda, consisting of clerics, oracles, and inquisitors who serve as the church's spiritual leaders and enforcers; and the Cundo'dori, made up of druids and rangers who protect the natural world. Together, these orders have guided elven civilization for over three thousand years, making Minerva's church one of the oldest and most organized religious institutions on Mazariim.
+
+---
+
+**May 19, 2026**
+When entities form their extra-dimensional planes, the nature of the plane may relate to conditions near the entity during its awakening—or may be completely random. Zebulba, who formed within a black hole, created the Negative Energy Plane. Gruhathyrir's wild consciousness spawned the Feywild. But others, like Kazrokath, created Limbo—a realm of boundless chaos—seemingly independent of any obvious environmental influence.
+
+---
+
+**May 20, 2026**
+The Stone-Steel Treaty of 376 AW was a historic trade and peace agreement between the Federation of Man and the Dwarven Empire. It opened formal commerce across the Dragon Spine Mountains for the first time since the War to End All Wars and led to the construction of the Great Rail—an ambitious underground railway linking human and dwarven territories, representing the greatest infrastructure project of the post-War era.
+
+---
+
+**May 21, 2026**
+Og'thallith, the entity of insanity and demonic corruption, awakened around 18,000 BW and merged with the Abyss, establishing a realm of gibbering chaos. From this unfathomable plane, demons began tempting early spellcasters into dark pacts long before organized religion existed. The Abyss became the spawning ground for all demonic creatures, making Og'thallith one of the most dangerous entities in the cosmos.
+
+---
+
+**May 22, 2026**
+The three entities from Talernon—Alagalothor, Thalaman, and Sheeva—each found very different homes in Mazariim's cosmology. Alagalothor, patron of magic, settled in the Far Realm. Thalaman, fragmented across timelines, teaches time magic from the chaos of Limbo. Sheeva, described as bitter and vengeful, claimed the Gardens of Vitriol in the Abyss and is served by shapeshifting creatures called Demodands. Their arrival in 1,492 BW brought entirely new schools of magical thought to the world.
+
+---
+
+**May 23, 2026**
+The Dukhan Empire's ziggurats served a dual purpose: they were temples for worship and locations for ritual human sacrifice to Zebulba. These structures were spread across at least six major cities in the Jinook Valley region. When the failed summoning ritual of Soros un-Kahn unleashed negative energy through every ziggurat simultaneously, it turned the empire's own religious infrastructure into instruments of its destruction—killing all living things within miles of each one.
+
+---
+
+**May 24, 2026**
+Halflings, known among themselves as the Hin, developed largely outside imperial recordkeeping. They preserve their history through village genealogies, seasonal rites, and practical oral traditions rather than written records. Their homeland of Shalazar sits within the elven sphere of influence—not through conquest, but through long trade habits and shared religious contact dating back to the Enlightening era, when Minervan teachings syncretized with older Hin harvest and hospitality customs.
+
+---
+
+**May 25, 2026**
+Quarzel, the entity of organized warfare, was the only major entity to be permanently destroyed during the War to End All Wars. He had manifested alongside Mordrion and lesser entities to confront Zuel's avatar at the Battle of Fort Hope, but Zuel obliterated them all before being defeated himself. Quarzel's death left a void in the cosmic order—an entity of war, destroyed in the greatest war ever fought. The month of Quarz in the common calendar is named in his memory.
+
+---
+
+**May 26, 2026**
+Fort Hope, originally a small walled keep in the interior of the Inner Kingdoms, became the most important location in the history of Mazariim during the War to End All Wars. It was here that the unprecedented alliance between all races was forged, here that the Concord of Unity was signed, and here that the final Battle of Fort Hope was won. After the war, it became the seat of the Praetorian Council and the governing capital of the Federation of Man.
+
+---
+
+**May 27, 2026**
+The Azala people of the Mespoian Peninsula represent the last link in a chain of pyramid-building cultures stretching back over 11,000 years. Varkonan migrants traveled northeast to tropical jungles around 2,200 BW and spent roughly 300 years adapting to their new environment before formalizing the Azala kingdom around 1,900 BW. They created an Aztec-style culture with temple-pyramids rising from the rainforest canopy, replacing desert irrigation with tropical agriculture while preserving the architectural traditions inherited from ancient Akovar.
+
+---
+
+**May 28, 2026**
+The War of Souls began formally in 1,799 BW as a conflict between the followers of Tiovin and Taovan across Mazariim. This was not a single war but a centuries-long theological conflict in which devotees of good and evil clashed repeatedly. Eventually, around 1,750 BW, the followers of Tiovin drove the cult of Taovan into the shadows in most regions—but Taovan's influence never truly disappeared, continuing to corrupt from the darkness.
+
+---
+
+**May 29, 2026**
+Dwarven terraced farmland is one of the engineering marvels of Mazariim. Built right into the sides of mountains, these enormous agricultural complexes date back over 3,000 years and persist to the present day. While dwarves became masters of underground construction—expanding from hamlet-sized caves to elaborate underground cities—they always remained dependent on the surface world to produce food, making these terraces vital to the survival of dwarven civilization.
+
+---
+
+**May 30, 2026**
+The Long Peace, lasting roughly from 200 to 400 AW, was the longest sustained period of peace in recorded history. Global trade networks connected all continents, the half-elf population grew substantially, and approximately 5,000 to 8,000 elves came to live permanently on Nigal by 400 AW. However, this extended era of stability came with a dangerous side effect: military readiness declined dramatically across all nations, leaving them vulnerable to future threats.
+
+---
+
+**May 31, 2026**
+Garnak, the entity of savage strength and predatory instinct, awakened in 1,666 BW—a date that numerologists find uncomfortably fitting. Garnak's worship spread quickly among orcs, goblins, ogres, and other primitive races, appealing to their primal nature. Garnak resides in the Savage Lands and is served by powerful shapeshifting beings called Animal Lords. While not inherently evil, Garnak represents the brutal, amoral face of nature where only the strong survive.
+
+---
+
+**June 1, 2026**
+The Moonlit Refuge Network is an underground railroad helping drow escape to the surface of Mazariim. It was established in the centuries following Eilistraee's arrival from Faerun, when several hundred drow refugees demonstrated that dark elves could reject evil and live peacefully among other races. These surface drow, called "moon drow," became living proof that heritage does not determine destiny—a radical concept in a world where many races still view each other with suspicion.
+
+---
+
+**June 2, 2026**
+The continent of Nigal is the most geographically and culturally diverse landmass in Mazariim. It contains the Inner Kingdoms, Merchant Nations, Lands of Chaos, Horselands, Ancient South, Lands of Honor, Mespoian Peninsula, Frozen Isles, and the Dwarven and Gnomish realms. Eight distinct human cultures call Nigal home, each with their own language, traditions, and real-world cultural analogues ranging from 17th-century European to Ancient Egyptian to Mongol Steppe.
+
+---
+
+**June 3, 2026**
+Wemics are an intelligent race that evolved among the elves of Vand'ardhon, dwelling in plains regions that many elves found inhospitable. With the body of a lion and the upper torso of a humanoid, wemics began to show both intellect and honor early in their development. Though less numerous than the major races, they carved out their own niche in elven society and have maintained their unique culture for thousands of years.
+
+---
+
+**June 4, 2026**
+Saerrus, one of the Inner Kingdoms, has one of the most turbulent founding stories of any nation. It was formed around 45 AW from the ruins of two or three Madronian nations that were completely destroyed during the War to End All Wars. Initially rebuilt as a monarchy, the monarchy fell in a popular uprising in 209 AW, and Saerrus transitioned into an intellectual democracy famous for its numerous universities and focus on art and culture.
+
+---
+
+**June 5, 2026**
+The first Tiovinian Crusade launched by Tentigo in 172 AW was the beginning of a pattern that would repeat twice more over the next 225 years. The Holy Theocracy of Tentigo, a warmongering Sabonaar nation founded around 550 BW, launched three major crusades—in 172, 219, and 397 AW—spreading Tiovinian faith through military force. The capital city of Tiovesh, originally called Vesh, was renamed in 472 BW to reflect the nation's total devotion to Tiovin.
+
+---
+
+**June 6, 2026**
+The Mask of the Pharaoh is one of the most important artifacts in the history of Mazariim. Created by Akovarian priests during the Dragon War of 6,830 BW, it was designed to hold the consciousness of Asti, the entity of healing and ley-lines. The Mask preserved Asti for 7,645 years while being guarded as a sacred but poorly understood relic by the Varkonan people, until it was finally recovered from a Nepherites pyramid in 815 AW and Asti was freed.
+
+---
+
+**June 7, 2026**
+The Zanthar Machine is a mysterious device built by a wizard named Zanthar who fled the Dukhan Empire around 310 BW and constructed a tower in the Steppes. The machine lay dormant for approximately 1,122 years before reawakening in 811 AW, triggering the Orceri Incursion—an invasion of orcs from an alternate timeline. This was the first significant planar disturbance since the Dragon War, and its ripple effects would catalyze events for decades to come.
+
+---
+
+**June 8, 2026**
+The recovery of Asti and the reawakening of ley-lines in 815 AW sent magical shockwaves rippling across all planes of existence. These disturbances woke dormant entities and empowered ancient artifacts. One of the most consequential side effects was drawing the attention of Ry'le, the Far Realm entity that had been watching Mazariim for 3,600 years. Within five years of the ley-line reawakening, Ry'le made its first direct contact with the mortal world.
+
+---
+
+**June 9, 2026**
+In 824 AW, the first mortal-crafted ley-line was created in the kingdom of Beneshire—a landmark achievement in the history of magic. For 7,645 years, the ley-line network had been dead, and only the entity Asti had ever created them. The fact that mortal spellcasters could now replicate this ancient Akovarian feat represented a fundamental shift in the magical capabilities of civilization, with implications that would resonate through the coming decades.
+
+---
+
+**June 10, 2026**
+Noctuminalis, a shadow dragon of terrifying power, awakened in 819 AW and seized an artifact called the Umbral Hand. Over the following two decades, Noctuminalis orchestrated an increasingly elaborate masterplan to transform all of Mazariim into a land of undead. The dragon's schemes culminated in 842 AW with five simultaneous catastrophic plots that required a global response—resulting in 4,500 elven dead, including one Artharan, before Noctuminalis was finally destroyed or sealed.
+
+---
+
+**June 11, 2026**
+The Grand Confederacy of Pragos was founded around 88 AW from war-torn Madronian territories that had been devastated during the War to End All Wars. Its "Grand Confederacy" title reflects its origin as a unification of multiple smaller, shattered territories. Pragos became known for industrial arcanism—the application of magical knowledge to manufacturing and infrastructure—making it one of the most technologically progressive nations in the Inner Kingdoms.
+
+---
+
+**June 12, 2026**
+The Federation of Man nearly overreached between 600 and 620 AW when a wave of nationalism drove it to pressure the Merchant Nations—particularly Naarlam and Cecastaa—into joining. Trade blockades and border skirmishes followed, but the expansionist effort was ultimately voted down by the Praetorian Council itself. This failed expansion marked a permanent turning point for the Federation, shifting its strategy from coercion to diplomacy.
+
+---
+
+**June 13, 2026**
+The Thaumaturgic Council seized control of Instar in 689 AW, transforming the ancient center of magical learning into a full magocracy. Among their most dramatic acts was closing Instar's ports to trade in 715 AW, redirecting all commerce to the nearby Free City of Amara. This single decision fundamentally reshaped the economic landscape of the southern Merchant Nations, making Amara one of the wealthiest trading hubs in the western world.
+
+---
+
+**June 14, 2026**
+Democracies are the newest form of government in Mazariim. Traditional monarchies like Beneshire (founded 1,650 BW) and the Miyasaki Shogunate (3,200 BW) are ancient, while magocracies span all eras. But genuine democracies—Saerrus (45 AW), Pragos (88 AW), and Soractian (180 AW)—all emerged in the post-War period, suggesting that the shared trauma and collective experience of the War to End All Wars was the catalyst needed for such revolutionary governance to take root.
+
+---
+
+**June 15, 2026**
+Tortuganae, founded around 1,500 BW in the Forgotten Isles, serves as a nonhuman archipelago refuge—a haven for various non-human races who sought safety and community away from the dominant civilizations of the major continents. For millennia, it has offered sanctuary to those who don't fit into the rigid cultural structures of mainland nations, making it one of the most cosmopolitan and diverse settlements in the world.
+
+---
+
+**June 16, 2026**
+The elves refer to themselves as the Yaara'sehan, meaning "ancient walkers" in their language. This name was bestowed upon them during The Enlightening of 3,402 BW, when Minerva formally recognized the Seven Elven Nations and guided them toward a unified spiritual identity. Before Minerva's arrival, elves worshiped primarily the Old Gods: Mau the Oracle, Vuleala the Mother of Rain, Gruhathyrir the Wyld Heart, and Iquinias the Lord of Seas.
+
+---
+
+**June 17, 2026**
+The Abyss and the Feywild represent two of the most extreme extra-dimensional planes. The Abyss, created by Og'thallith around 18,000 BW, is a realm of gibbering chaos and demonic corruption. The Feywild, created unintentionally by Gruhathyrir around 20,000 BW, is a parallel plane where nature operates by dream-logic. One was born from malice, the other from wild instinct—yet both are equally dangerous to unprepared mortals who stumble into them.
+
+---
+
+**June 18, 2026**
+The Free City of Amara has one of the most complicated political histories of any city in Mazariim. It was part of the Dukhan Empire collapse in 213 BW, was assimilated into the Empire of Simir in 291 AW, won its independence in 692 AW after Simir fell, endured civil wars until 711 AW, received redirected trade from Instar in 715 AW, and survived a devastating conflict with Moamon in 733 AW. Each crisis made the city more resilient, transforming it into the mercantile powerhouse it is today.
+
+---
+
+**June 19, 2026**
+In 839 AW, five proto-entities—beings on the verge of becoming full entities—physically crashed into the Varkonan lands of the Ancient South. This triggered a global race for the scattered parts of Gyru's Machine of Apotheosis, as one of these proto-entities sought to drain mana from the machine's fragments and forcibly ascend to full godhood. The crisis was so severe that elves deployed 8,000 soldiers—their largest mobilization since the War to End All Wars.
+
+---
+
+**June 20, 2026**
+The Plane of Dreams was created by Zanzabar around 12,000 BW—making Zanzabar the youngest entity of the Timeless Era. Unlike other entities that formed from gravitational or magical forces, Zanzabar coalesced from dream-energies that accumulated after sentient races evolved complex dreaming minds. The Plane of Dreams is an ever-changing transitive plane through which all dreaming minds travel, whether they know it or not.
+
+---
+
+**June 21, 2026**
+Guzon, the entity of discipline, order, and self-perfection, is unique among Mazariim's entities in that it arrived from another plane around 3,200 BW—before even Mordrion and Zuel's dramatic entrance. Guzon created Utopia, a realm of eternal perfection that it shares with Mordrion and Gyru. Its monks teach enlightenment through meditation, making Guzon the patron of those who seek to master themselves rather than the world around them.
+
+---
+
+**June 22, 2026**
+The inhabitants of the Akovar continent who survived the Dragon War were not only transformed culturally—some were physically mutated by the magical catastrophe. When the ley-lines exploded during the final battle, some survivors merged with draconic energy and became the first dragonborn, while others merged with animal essences, creating entirely new races. When the continent was rediscovered in 815 AW, explorers found thriving dragonborn, aasimar, and tiefling civilizations that had developed in 7,645 years of isolation.
+
+---
+
+**June 23, 2026**
+Demious Stoneshaper, the dwarven hero who defeated Zuel's avatar at the Battle of Fort Hope, wielded Mordrion's own blessed warhammer in the final confrontation. After hours of brutal combat—during which Zuel had already destroyed the avatars of Mordrion, Quarzel, and several lesser entities—Stoneshaper somehow shattered the avatar of the most powerful enemy Mazariim had ever faced. He became king of the northern dwarven realms after the war, and Stoneshaper's Vigil is still celebrated as a holiday in his honor.
+
+---
+
+**June 24, 2026**
+The Madra language of the Inner Kingdoms features 15 vowels and uses silent letters extensively, giving it a flowing, musical quality. The Sabo language of the Merchant Nations, by contrast, is phonetic and practical—designed for clear communication in busy ports and marketplaces. Though both descended from common human linguistic roots, they diverged so dramatically over 3,500 years that speakers of one cannot understand the other without study.
+
+---
+
+**June 25, 2026**
+Iaurtorn, consecrated around 12,000 BW, is a vast ceremonial forest on Vand'ardhon that serves as the spiritual center for all elven clans. Functioning as neutral ground where any elf from any of the seven nations can gather in peace, Iaurtorn has witnessed over twelve millennia of elven spiritual practice, from the worship of the Old Gods through the Enlightening and into the modern era. It is one of the oldest continuously sacred sites on Mazariim.
+
+---
+
+**June 26, 2026**
+The campaign timeline of Mazariim spans from 811 to 842 AW—just 31 years during which the world was fundamentally transformed. In that brief span, ancient machines were reawakened, lost continents rediscovered, ley-lines restored after 7,645 years, Far Realm entities infiltrated mortal kingdoms, proto-entities crashed to earth, and a shadow dragon attempted to turn the entire world into a realm of undead. More happened in three decades than in the previous three centuries combined.
+
+---
+
+**June 27, 2026**
+The Greenwardens are halfling druid circles on Shalazar that represent a unique religious syncretism. When Minerva's Enlightening reached Shalazar in 3,402 BW, the Minervan teachings didn't replace older Hin traditions but blended with them, creating a spiritual practice that honors both the elven reverence for nature and the halfling devotion to harvest and hospitality. This fusion made the Greenwardens culturally distinct from both elven Cundo'dori druids and traditional halfling folk practices.
+
+---
+
+**June 28, 2026**
+Zzan, the draconic fiefdom in the very cold northern reaches of the Lavantine Peninsula, is one of the strangest nations in Mazariim. Founded around 180 BW, it is a territory where dragons literally rule and humans serve. While most nations are defined by their mortal inhabitants' ambitions and cultures, Zzan exists because powerful dragons chose to claim territory—making it a rare example of non-humanoid governance in a world dominated by the affairs of elves, humans, and dwarves.
+
+---
+
+**June 29, 2026**
+The seven noble houses of Naarlam have lineages stretching back over 2,000 years, making them some of the oldest continuous bloodlines in human civilization. Naarlam itself emerged from the fragmentation of Sabonaa in 555 BW during the devastating Plague of Madness. Despite the chaos of that founding, the noble houses survived and became the backbone of Naarlam's seafaring explorer culture, maintaining their ancient traditions through every subsequent crisis.
+
+---
+
+**June 30, 2026**
+Kazrokath, the entity of change, entropy, and transformation, awakened around 16,000 BW and created Limbo—a realm of boundless chaos where reality itself is fluid and unpredictable. Limbo is served by serpentine creatures called Proteans, beings of pure chaos that can reshape matter and energy at will. Kazrokath is also associated with psionics, making this entity the patron of those who manipulate reality through the power of the mind alone.
+
+---
+
+**June 1, 2026 — Repeated: see corrected June 14**
+
+**July 1, 2026**
+The Favored are mortals who have been personally empowered by entities with special supernatural powers beyond normal divine magic. Unlike clerics who channel divine energy through prayer, or paladins who draw power from sacred oaths, the Favored receive a direct and personal touch from their patron entity—marking them as chosen agents with unique abilities that set them apart from ordinary followers. Every major entity in Mazariim has at some point created Favored servants to carry out tasks too delicate or important for outsiders.
+
+---
+
+**July 2, 2026**
+The Gromthi are the spirits of honored dwarven dead who dwell in Mordrion's realm within Utopia. When a dwarf dies having lived with honor, their soul may be called to serve in Mordrion's eternal forge-halls rather than dissipating into the magical energy of a plane. The Gromthi represent the dwarven ideal of service continuing beyond death—a warrior's duty never truly ends, and a smith's hammer never truly falls silent.
+
+---
+
+**July 3, 2026**
+The number 101 appears repeatedly in Mazariim's cosmology as the exact duration of an entity's banishment after its avatar is destroyed on the prime material plane. This precise figure suggests something fundamental about the magical laws governing the boundary between planes—a specific amount of energy that must be accumulated before an entity can pierce the dimensional barrier again. After the War to End All Wars, virtually every major entity in the world simultaneously began this 101-year countdown, leaving Mazariim without direct divine intervention until 101 AW.
+
+---
+
+**July 4, 2026**
+The universe of Mazariim contains four fundamental planes that exist as the building blocks of reality alongside the prime material plane: the Astral Plane (created by Mau), the Ethereal Plane (created by Tiovin), the Shadow Plane (created by Taovan), and the Feywild (created by Gruhathyrir). Every other extra-dimensional plane—Heaven, Hell, the Abyss, Utopia, Limbo, and dozens more—was created when an entity of sufficient magical mass awakened and spontaneously generated its pocket universe.
